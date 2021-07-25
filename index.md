@@ -24,7 +24,7 @@ Tiskin toisella puolella asikaskunta on laidasta laitaan. Yleensä sitä selviä
 
 Kuva: Pixabay
 
-Toinen versio milloin kirjalliseen viestintään olen törmännyt on kun on ulkomaan reissuissa. Jos paikallisella on niin huonon englanninkielen taito tai vaikkapa ruokalista on kirjoitettu kirjaimilla mitä et edes tunnista :) Suosittelen lataamaan matkaa varten Google Translaten sovelluksen millä on näppärä käydä keskustelua ventovieras kielisenkin kanssa!
+Toinen versio milloin kirjalliseen viestintään olen törmännyt on kun on ulkomaan reissuissa. Jos paikallisella on niin huonon englanninkielen taito tai vaikkapa ruokalista on kirjoitettu kirjaimilla mitä et edes tunnista :) Suosittelen lataamaan matkaa varten Google Translaten sovelluksen millä on näppärä käydä keskustelua vieraskielisenkin kanssa!
 
 ![kuva4](https://pixabay.com/get/g401177cb848c0f9e332e707dea84df4d2089826c553520a82943f5eaf749d4945894964ade1d5ad32bfa3ce4781feea4_640.jpg)
 
