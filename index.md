@@ -10,6 +10,7 @@ Tervetuloa viihtymään! :)
 ![kuva1](https://pixabay.com/get/gf7804a6b59c2a89c304df7ee5f4b675ad40a9fe20a56eaf47dd733ffc78c5041fad5a7eb62b1c7f9f702346192fb8bd7_640.jpg)
 
 Kuva: Pixabay
+
 ### Millaisia viestintätilanteita kohtaat päivittäin, viikoittain, kuukausittain? 
 
 Näkisin että tilanteet elävät suuresti ja niihin voi reagoida eri tavalla vaikka äskettäin olisitkin melkein vastaavan tilanteen kokenut. Se että onko kuun asento missä asennossa voi vaikuttaa koko päivän antiisi. Tietysti ammattimaisuus tulee pitää yllä tilanteessa kuin tilanteessa. Olethan firman kasvot tiskin toisella puolella.
@@ -17,6 +18,7 @@ Näkisin että tilanteet elävät suuresti ja niihin voi reagoida eri tavalla va
 ![kuva2](https://pixabay.com/get/g296161f18aea54b3d3aaa3319c39a741248262eb2c168726b26170ac98461e904a1ef58a4cdf512203bb59b6e1eecfba_640.jpg)
 
 Kuva: Pixabay
+
 
 Mieti tilannetta missä asiakas pyytää juuri painonvartioista tulleena mahdollisimman vähä kalorista pientä purtavaa ja juotavaa. Suositeltuasi salaattia ja kahvia rasvattomalla maidolla asiakas tilaakin keksin ja Cafe Mochan kermavaahdolla. Tervetuloa asiakaspalvelun maailmaan.
 
@@ -27,6 +29,7 @@ Tiskin toisella puolella asiakaskuntaa on laidasta laitaan. Yleensä sitä selvi
 ![kuva3](https://pixabay.com/get/g385d1cc538920346ea9753f7f756ed39435cfbc3f21bf61e82a7abfc7fc6c8b78aa2e58ed29d5ae8dc7f83135b17e255_640.jpg)
 
 Kuva: Pixabay
+
 
 Toinen versio milloin kirjalliseen viestintään olen törmännyt on kun on ulkomaan reissuissa. Jos paikallisella on niin huonon englanninkielen taito tai vaikkapa ruokalista on kirjoitettu kirjaimilla mitä et edes tunnista :) Suosittelen lataamaan matkaa varten Google Translaten sovelluksen millä on näppärä käydä keskustelua vieraskielisenkin kanssa!
 
@@ -43,6 +46,7 @@ Palvelukokemushan lähtee yleisesti kokonaisvaltaisesti käyntiin jo ennenkuin a
 
 Kuva: Pixabay
 
+
 ### Milloin koet asiakkaan kohtaamisen vaikeaksi?
 
 Asiakaskohtaamisissa tulee muistaa se että hekin ovat ihmisiä. Kaikilla on huonoja päiviä ja jos joku tulee sitä tiskille purkamaan niin voi tulla tilanteeet voivat eskaloitua helposti. Mutta niistäkin kliseisesti koitetaan oppia lisää ja kasvetaan vahvemmiksi. Jos itsellekin sattuu huono päivä niin ojassa ollaan. Välillä on joutunut jopa poliisit soittamaan jos asiakasta ei ole muuten saatu poistumaan päihtymyksen vuoksi. Tässä täytyy silti muistaa että kahvilassa on muitakin asiakkaita jotka täytyy huomioida tilanteessa kuin tilanteessa!
@@ -51,6 +55,7 @@ Asiakaskohtaamisissa tulee muistaa se että hekin ovat ihmisiä. Kaikilla on huo
 
 Kuva: Pixabay
 
+
 ### Milloin olet kokenut, että on hankalaa pukea asia sanoiksi niin, että asiakas ymmärtää viestisi oikein?
 
 Koita samaistua tilanteeseen missä työkaverisi on äkillisesti joutunut lähtemään kesken päivää töistä ja olet jäänyt yksin loppupäiväksi. Kahvila on täynnä asiakkaita, tiskit tekemättä, jonoa ovelle asti, tilaukset tekemättä ja tehtävää vaikka viidelle. Asiakas empii ja empii ja lopulta tilaa talon haastavimman ja aikaa vievimmän tilauksen. Miten pukisit kohteliaasti sanoiksi sen että mikä tahansa toinen vaihtoehto olisi parempi? 
@@ -58,6 +63,7 @@ Koita samaistua tilanteeseen missä työkaverisi on äkillisesti joutunut lähte
 ![kuva6](https://pixabay.com/get/g676900afd8551b43aaa415d7607d2c8c638987ca88d92320663a0e3eafa76528062d814441ccd7ffffb2e479ffabd606_640.jpg)
 
 Kuva: Pixabay
+
 
 ### Millaisissa tilanteissa on tuntunut, että asiakas on ymmärtänyt sanomasi väärin? Mistä väärinymmärrys on voinut mielestäsi johtua?
 
@@ -68,6 +74,7 @@ Ihmisiä on joka lähtöön. Ihmiset voivat ymmärtää asiat miten itse parhaak
 ![kuva7](https://pixabay.com/get/g06c66f9f0c4eb7b989e2afd9918be43034e7e393fffd6cdd34762477272b5c1217fc5d11070e9f0e826c6ee074c38842_640.jpg)
 
 Kuvat: Pixabay
+
 
 ### Milloin olet kokenut onnistuneesi hyvin tai jopa loistavasti? 
 
@@ -81,6 +88,7 @@ Ammatti missä olet kokoajan esillä ja palvelemassa asiakasta parhaasi mukaan v
 
 Kuvat: Pixabay
 
+
 ### Olisiko jonkin hankalan tilanteen jälkeen ollut paikallaan tarjota itselleen kakkukahvit?
 
 Kakkukahvit on yleisesti todella mielenkiintoinen aihe. Mietitään nykysukupolvea joka on ihan hurahtanut sali- ja terveysvillityksiin. Onko kakkukahvit enään samassa arvossa kuin ennen? Henkilökohtaisesti en välitä makeasta joten kakkukahvit on pakollinen paha mistä kohteliaisuuden rajoissa yrittää kieltäytyä. Tilannetta töissä missä kakkukahvit olisivat paikallaan ei taida löytyä hyvässä eikä pahassa :)
@@ -88,6 +96,7 @@ Kakkukahvit on yleisesti todella mielenkiintoinen aihe. Mietitään nykysukupolv
 ![kuva11](https://pixabay.com/get/g7c13c8d9603401b8ccbfd86c9edaed7b7e68b4935e742fc6dfcbdc94a315ddbb54287714e21cb654bf223ede13b0096e_640.jpg)
 
 Kuva: Pixabay
+
 
 ### Millaisia asiakasviestintään liittyviä ohjeita antaisit nuorelle, joka tulee työpaikkaasi uutena työntekijänä?
 
@@ -97,11 +106,13 @@ Kun tulet firmaan uutena. Ole nöyrä, valmis joustamaan ja kuuntele kokeneempia
 
 Kuva: Pixabay
 
+
 Kysy jos et tiedä jotain. Se on kultainen sääntö. Ei ole tyhmiä kysymyksiä, on vaan tyhmiä vastauksia. Muistan ensimmäisen päivän kahvilasta. Pyyntönä oli että pesisin kahvilan lattian luutulla. Ensimmäinen mitä keksin tehdä oli heittää koko ämpärillinen pesuvettä parketille ja aloin kuuraamaan. Voitte kuvitella kuinka nopeasti duunikaverin kierrokset nousi nollasta sataan heti aamusta..
 
 ![kuva13](https://pixabay.com/get/g57853d69479ad201a9d771c9e222dc546ed65a30ee8ce9d270eb1e0b039ef2d0891395b52da394a7728a867e8e6becfa_640.jpg)
 
 Kuva: Pixabay
+
 
 ### Miten voit viestinnälläsi itse vaikuttaa työpaikkasi imagoon?
 
@@ -119,6 +130,7 @@ Asiakaspalveluun ei valmistuta. Siihen kasvetaan. Tsemppiä valitsemallasi urall
 ![kuva15](https://pixabay.com/get/g35868982fcac53d4b558ff58e24fa3bc8eaaa232cb97ef0c664b83550103d27d2848616f4b52f5da37ecb6ba43ca29a6_640.jpg)
 
 Kuva: Pixabay
+
 
 Mukavaa että päätit pyörähtää blogissani. Toivottavasti viihdyit ja tervetuloa uudelleenkin lueskelemaan viimeisimmät kuulumiset. Yritän päivitellä blogia viikottain jos vain aikataulut sallivat.
 
