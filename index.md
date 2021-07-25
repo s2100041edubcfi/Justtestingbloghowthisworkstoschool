@@ -41,7 +41,7 @@ Having trouble with Pages? Check out our [documentation](https://docs.github.com
 
 Seuraavassa käydään läpi omia ajatuksiani ja kokemuksia viestinnästä ollessani kahvilassa töissä. Käytän apuna hyviä kysymyksiä väliotsikkoina joihin voit hypätä vasemmalta valikosta. 
 
-![https://pixabay.com/get/gf7804a6b59c2a89c304df7ee5f4b675ad40a9fe20a56eaf47dd733ffc78c5041fad5a7eb62b1c7f9f702346192fb8bd7_640.jpg](test)
+![testi](https://pixabay.com/get/gf7804a6b59c2a89c304df7ee5f4b675ad40a9fe20a56eaf47dd733ffc78c5041fad5a7eb62b1c7f9f702346192fb8bd7_640.jpg)
 
 ### Millaisia viestintätilanteita kohtaat päivittäin, viikoittain, kuukausittain? 
 
