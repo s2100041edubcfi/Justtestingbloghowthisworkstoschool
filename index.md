@@ -1,7 +1,11 @@
 # Tervetuloa viestinnän blogiini
 
 
-Seuraavassa käydään läpi omia ajatuksiani ja kokemuksia viestinnästä ollessani kahvilassa töissä. Toivottavasti saat näistä jotain uusia ajatuksia tai näkökulmia. Tervetuloa viihtymään! :)
+Seuraavassa käydään läpi omia ajatuksiani ja kokemuksia viestinnästä ollessani kahvilassa töissä. Toivottavasti kirjoituksistani herää ajatuksia tai avautuu eri näkökulmia. 
+
+Haluaisin kuulla myös lukijoistani lisää. Kommentoithan mielipiteitäsi lukemasi jälkeen. Lupaan käydä vastailemassa jokaiseen viestiin! :)
+
+Tervetuloa viihtymään! :)
 
 ![kuva1](https://pixabay.com/get/gf7804a6b59c2a89c304df7ee5f4b675ad40a9fe20a56eaf47dd733ffc78c5041fad5a7eb62b1c7f9f702346192fb8bd7_640.jpg)
 
