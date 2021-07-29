@@ -3,9 +3,7 @@
 
 Seuraavassa käydään läpi omia ajatuksiani ja kokemuksia viestinnästä ollessani kahvilassa töissä. Toivottavasti kirjoituksistani herää ajatuksia tai avautuu eri näkökulmia. 
 
-Haluaisin kuulla myös lukijoistani lisää. Kommentoithan mielipiteitäsi lukemasi jälkeen. Lupaan käydä vastailemassa jokaiseen viestiin! :)
-
-Tervetuloa viihtymään! :)
+Haluaisin kuulla myös lukijoistani lisää. Kommentoithan mielipiteitäsi lukemasi jälkeen. Käydä vastailemassa jokaiseen viestiin! :)
 
 ![kuva1](https://raw.githubusercontent.com/s2100041edubcfi/Justtestingbloghowthisworkstoschool/gh-pages/kuva1.jpg)
 
