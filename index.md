@@ -7,7 +7,7 @@ Haluaisin kuulla myös lukijoistani lisää. Kommentoithan mielipiteitäsi lukem
 
 Tervetuloa viihtymään! :)
 
-![kuva1](https://pixabay.com/get/gf7804a6b59c2a89c304df7ee5f4b675ad40a9fe20a56eaf47dd733ffc78c5041fad5a7eb62b1c7f9f702346192fb8bd7_640.jpg)
+![kuva1](https://raw.githubusercontent.com/s2100041edubcfi/Justtestingbloghowthisworkstoschool/gh-pages/kuva1.jpg)
 
 Kuva: Pixabay
 
